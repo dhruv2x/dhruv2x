@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **chauhandhruv351@gmail.com**
 
-- ⚡ Fun fact **I can stay awake for more than 48 hours.**
+- ⚡ Fun fact **I can stay awake for more than 36 hours.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
